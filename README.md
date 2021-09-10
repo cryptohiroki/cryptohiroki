@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cryptohiroki
-- 👀 I’m interested in crypto,and blockchain industry
+- 👀 I’m interested in crypto and blockchain industry
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
